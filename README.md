@@ -1,1 +1,1 @@
-# Dominik-rek
+# Dominik-Šrek
